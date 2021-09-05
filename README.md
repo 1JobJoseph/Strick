@@ -1,0 +1,2 @@
+# Strick
+Unbelievable growth
